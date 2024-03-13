@@ -1,4 +1,4 @@
-# Fullperm meshes for Secondlife 
+# Fullperm models for Secondlife 
 https://polyhaven.com/models
 
 https://cgtrader.com/free-3d-models
